@@ -10,6 +10,13 @@ dontㅤcallㅤmeㅤdylickzㅤiㅤgoㅤbyㅤadamㅤorㅤ23oncㅤ.ㅤiㅤamㅤsorr
 𓎢𓎟𓎡𓎢𓎟𓎡𓎢𓎟𓎡𓎢𓎟𓎡𓎢𓎟𓎡𓎢𓎟𓎡
 </p>
 
+<p align="center">
+ BACK FROM HIATUSㅤ,ㅤsorry for not interacting a lotㅤ,ㅤive been struggling badly with mental health.
+</p>
+
+<p align="center">
+PLEASE READ MY STRAWPAGEㅤ,ㅤit has my dni and intㅤ,ㅤbe careful if you enter my twtㅤ,ㅤit contains sensitive content like gore.
+</p>
 
 
 <div align="center"
