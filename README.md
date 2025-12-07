@@ -15,7 +15,7 @@ dontㅤcallㅤmeㅤdylickzㅤiㅤgoㅤbyㅤadamㅤorㅤ23oncㅤ.ㅤiㅤamㅤsorr
 </p>
 
 <p align="center">
-PLEASE READ MY STRAWPAGEㅤ,ㅤit has my dni and intㅤ,ㅤbe careful if you enter my twtㅤ,ㅤit contains sensitive content like gore.
+PLEASE READ MY STRAWPAGEㅤ,ㅤit has my dni and int
 </p>
 
 
