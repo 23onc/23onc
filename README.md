@@ -25,3 +25,9 @@ PLEASE READ MY STRAWPAGEㅤ,ㅤit has my dni and int
 
  </div>
 
+<p align="center">
+  <img width="460" height="300" src="https://github.com/user-attachments/assets/b02e3347-c140-4d1b-89aa-60bd4c31bd59">
+</p>
+ 
+
+
