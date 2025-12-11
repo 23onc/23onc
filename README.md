@@ -30,3 +30,7 @@ PLEASE READ MY STRAWPAGEㅤ,ㅤit has my dni and int
 </p>
  
 
+
+
+https://github.com/user-attachments/assets/35d50bdb-c403-46bb-9ecd-f26f5439d159
+
